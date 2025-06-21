@@ -31,7 +31,7 @@
 
 <a href="https://hl982.pages.dev/">黑料社区成人版</a>
 
-<a href="https://pi1-01.pages.dev/"50度灰</a>
+<a href="https://pi1-01.pages.dev/">50度灰</a>
 
 <a href="https://pi22.pages.dev/">51每日吃瓜</a>
 
